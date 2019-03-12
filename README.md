@@ -1,5 +1,5 @@
  
 
-George Amgad Wadie  
+George Amgad
 5002
 
