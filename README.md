@@ -1,5 +1,5 @@
  
 
-Name: George Amgad Wadie
-ID  : 5002
+George Amgad Wadie  
+5002
 
